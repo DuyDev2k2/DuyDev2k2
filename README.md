@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DuyDev2k2
-- 👀 I’m interested in ...game and  fil
+- 👀 I’m interested in ...game and  film and program
 
 - 🌱 I’m currently learning 
 Univers  department  IT
